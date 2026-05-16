@@ -1,10 +1,12 @@
 # hey there
-im abtauau2121, also known as antibantroll maybe
+im abtauau2121, aka antibantroll
 
-im pasting many codes bc idk
-## things i hate
-* mcpvp (hive, hypickle, mmc...?)
-* microsoft (yea ik ms owns github but...)
-* and some other thing i can't think of
+im pasting many codes cuz not enough shit to code
+
+**minecraft is kinda retired**
+
+for ppl who came my profile from sum trash unblocked games, ye its me
 ## how to contact to me
-use social links or use discord: **same as my name**
+use social links or discord: **same as my name**
+
+pg: 324966813
