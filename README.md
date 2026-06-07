@@ -1,7 +1,7 @@
 # hey there
 im abtauau2121, aka antibantroll
 
-im pasting many codes cuz not enough shit to code
+im pasting many codes cuz not enough skill to code
 
 **minecraft is kinda retired**
 
